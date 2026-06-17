@@ -42,7 +42,6 @@
 - https://sites.google.com/view/uan77vt5qhrkf6t7c0
 - https://sites.google.com/view/wskil1tiqgct0zrrdh
 - https://sites.google.com/view/udpe553u16qjmu2eal
-- http://c.kfmail.top/c/tech-bymyvujx
 - https://sites.google.com/view/q1dgtmagtuzrw5hvgc
 - https://sites.google.com/view/sgko4no46uqki8izsg
 - https://sites.google.com/view/khx3j5ysqioe89zuwo
@@ -65,6 +64,7 @@
 - https://sites.google.com/view/esk7gylguovkyfavw5
 - https://sites.google.com/view/ozz5xyagzh9i1f4iak
 - https://sites.google.com/view/mp69t68r38h4b5jhj4
+- http://43.133.171.72/c/tech-bymyvujx
 - https://sites.google.com/view/p53ab5t1quw5gpvy6m
 - https://sites.google.com/view/u9bcd5y53hte24a5cs
 - https://sites.google.com/view/lk2ed262w1swljuebt
@@ -90,6 +90,7 @@
 - https://sites.google.com/view/lwrdvq45xw6iy8ycmj
 - https://sites.google.com/view/oqea79ugsdfaq7jsur
 - https://sites.google.com/view/mxe6m9xf7zyo2s2u85
+- http://43.133.171.72/c/tech-bymyvujx
 - https://sites.google.com/view/wz0v358otlk1ja2f3t
 - https://sites.google.com/view/edbumlk8gful26b9c7
 - https://sites.google.com/view/b8z2dhb1h947l5in7j
@@ -170,7 +171,6 @@
 - https://sites.google.com/view/ruw8c2kddegvpc5zg8
 - https://sites.google.com/view/fo1fe5h14q4uemm27c
 - https://sites.google.com/view/o38fcqddpkq5asbiwy
-- http://c.kfmail.top/c/tech-bymyvujx
 - https://sites.google.com/view/zx56q4y4tlns9qdt9y
 - https://sites.google.com/view/hrv461uov3az2wlp47
 - https://sites.google.com/view/eihyyk4xd8p9z83poc
@@ -218,7 +218,6 @@
 - https://sites.google.com/view/p545kzjihqcblz4pzt
 - https://sites.google.com/view/rn23oqm4vil0fa73v6
 - https://sites.google.com/view/sx6wb3h8iql3xx9ge7
-- http://c.kfmail.top/c/tech-bymyvujx
 - https://sites.google.com/view/qf9dzx2gxddli2l5e7
 - https://sites.google.com/view/ieuc0670pe2pm9uo1a
 - https://sites.google.com/view/up1iy8osqiaysl0v7d
@@ -292,6 +291,7 @@
 - https://sites.google.com/view/jjjosr9vyg5ayi5mze
 - https://sites.google.com/view/w8pxy1506gg94rbaig
 - https://sites.google.com/view/wic4f7lsosm1af17hc
+- http://43.133.171.72/c/tech-bymyvujx
 - https://sites.google.com/view/dpc1ql5hem9t45ybjl
 - https://sites.google.com/view/f4tyllbmwzrywuyisn
 - https://sites.google.com/view/yjsolaf4atoxx04nmm
